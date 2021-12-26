@@ -1,6 +1,6 @@
 **My name is Roman Romanenko.**
 
-Contacts: phone 89529646435, email Romanenko.roma.1983@bk.ru
+Contacts: phone 89529646435, email Romanenko.roman.1983@bk.ru
 ---
 Discord: Roman20777 (@romanromanenko).
 ---
